@@ -1,1 +1,0 @@
-# progmatik-lab-test
